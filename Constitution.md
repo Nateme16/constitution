@@ -1,6 +1,6 @@
 A short set of personal guidance to live by to be a **better person** (in no particular order) -
+(Read in the morning)
 
-- Read in the morning
 - Develop patience at every opportunity
 - Think twice before every action and communication
 - Drink more water
@@ -14,5 +14,6 @@ A short set of personal guidance to live by to be a **better person** (in no par
 - Read books
 - Do it the right way once
 - It's always worth getting up and going
+- Dont argue with dumb people
 
 *--to be continued/condensed*
