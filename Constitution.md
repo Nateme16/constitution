@@ -1,4 +1,5 @@
-A short set of personal guidance to live by to be a **better person** (in no particular order) 
+A short set of personal guidance to live by to be a **better person** (in no particular order)
+
 (read in the morning)
 
 - Develop patience at every opportunity
