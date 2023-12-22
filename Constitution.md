@@ -1,6 +1,6 @@
 A short set of personal guidance to live by to be a **better person** (in no particular order)
 
-/(read in the morning)
+/*--read in the morning
 
 - Develop patience at every opportunity
 - Think twice before every action and communication
