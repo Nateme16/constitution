@@ -16,5 +16,6 @@ A short set of personal guidance to live by to be a **better person** (in no par
 - Do it the right way once
 - It's always worth getting up and going
 - Dont argue with dumb people
+- Stop complaining. Either fix it yourself or adjust
 
 *--to be continued/condensed*
